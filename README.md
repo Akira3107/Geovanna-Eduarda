@@ -7,4 +7,4 @@
 
 **Me siga nas redes sociais!!**
 - Meu instagram é: https://www.instagram.com/gee_duarda
-**Vencedores não arumam desculpas quando o outro lado joga (Harvey Specter)**
+- ***Vencedores não arumam desculpas quando o outro lado joga (Harvey Specter)***
