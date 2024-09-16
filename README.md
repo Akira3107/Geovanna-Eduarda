@@ -6,5 +6,5 @@
 - Utilizo essa plataforma para organização e compartilhamento dos meus projetos realizados
 
 **Me siga nas redes sociais!!**
--Meu instagram é: https://www.instagram.com/gee_duarda
+- Meu instagram é: https://www.instagram.com/gee_duarda
 
