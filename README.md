@@ -5,5 +5,6 @@
 - Estou estudando JavaScript
 - Utilizo essa plataforma para organização e compartilhamento dos meus projetos realizados
 
-- Meu instagram é: https://www.instagram.com/gee_duarda
+**Me siga nas redes sociais!!**
+Meu instagram é: https://www.instagram.com/gee_duarda
 
